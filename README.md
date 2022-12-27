@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @uwuyeaahh
 - 👀 I’m interested in playing games.
-- 🌱 I’m currently learning ...
 - 📫 @uwuyeaahh on Twitter!
 
 <!---
